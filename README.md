@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Navjeevan Science School 
+- 👀 Navjeevan Science School is one of the most desired place for the students streaming science. The prestigious school has most number of Board Merit and Board Medals in Science stream. It is the place where education meets excellence.
+- 🌱 Jyoti Nagar, Piprali Road Sikar, Rajasthan, 332001
+- 📫 How to reach me- https://navjeevanschoolsikar.com/
